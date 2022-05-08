@@ -2,7 +2,7 @@
 
 2022.5.8
 
-GalGame → 白日梦的构想图（白昼夢の青写真）R18版本 [点此打开](https://cn.pan.jlbx.xyz/)
+GalGame → 白日梦的构想图（白昼夢の青写真）R18版本 [点此打开](https://pan.jlbx.xyz/GalGame/PC/%E7%99%BD%E6%98%BC%E5%A4%A2%E3%81%AE%E9%9D%92%E5%86%99%E7%9C%9F.zip)
 
 游戏 → 驱动妖精0.61 [点此打开](https://pan.jlbx.xyz/%E6%B8%B8%E6%88%8F/%E9%A9%B1%E5%8A%A8%E5%A6%96%E7%B2%BE0.6.1.zip)
 
